@@ -1,0 +1,2 @@
+# THingy-C40
+ijfsdklhgayugdhgiahegyfhehfgthyasuifasghfsio
